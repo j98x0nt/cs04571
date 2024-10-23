@@ -1,1 +1,12 @@
-# cs04571
+java cIntro to Family Studies FSGN 1100.01
+Research Paper Stage 2: (20%)
+Due by 11:59 pm on October 21· Drawing on the articles identified in “Stage 1” (and additional articles if needed) write a research paper (Approximately 1000 - 1500 words - 12 point font, double spaced - plus references and a title page) that synthesizes the information and answers your question. The synthesis must cite information from all articles from your annotated bibliography and additional sources used within the paper, and in the bibliography using APA 7. Sources not cited in the paper should not be found in the bibliography.· Your paper should include: o Title page: title of the paper, your name, name of the university, course number and name, professor’s name, and assignment due date.
+Please use these headings in your papero An introduction that includes:§ the question you plan to answer§ why your selected question is important to you§ why/how this knowledge might be important to the field of Family Scienceo Method: a brief summary of your search process, including search terms and which database(s) you usedo Findings: A synthesis of the information that answers your questiono Conclusion (What can you conclude? Is your代 写Intro to Family Studies FSGN 1100.01R
+代做程序编程语言 question clearly answered, or is the literature unclear?). The conclusion should include your final thoughts.· Clear and accurate language must be used. Please consult the Learning Centre for assistance if needed.· Pay careful attention to APA 7 referencing within your paper, and in the bibliography· Please submit to the Moodle dropbox no later than 11:59 on October 21.
+
+Informal presentation: (5%)
+On October 23, the class time will be dedicated to informal presentations/discussion within small groups (10 minutes per person). Students will prepare a 1-page summary of their research study (bullet points are fine). You will share it verbally within your small group and lead a short discussion based on your Discussion Question.
+This summary will include:1. The research question, and why you chose it2. Brief description of the process used to find articles and any challenges to finding information that answered your question3. A summary of the findings (can use bullet points)4. Your conclusions5. A brief “Discussion Question” related to your topic to pose to your small group members6. A copy of your summary will be posted on Moodle on Oct 23 by 11:59
+
+         
+加QQ：99515681  WX：codinghelp  Email: 99515681@qq.com
